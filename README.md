@@ -17,3 +17,5 @@ Author:
 Takudzwa Choto
 Software Engineer
 Blockchain & Smart Contracts Reseacher
+
+                                                                                 Contact me at: ctakudzwa95@gmail.com
